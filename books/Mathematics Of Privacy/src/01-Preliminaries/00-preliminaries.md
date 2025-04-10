@@ -1,5 +1,5 @@
 > **"When the ancients stumbled upon ‘Phi,' they thought they'd cracked the code to the universe—divine blueprints, straight from the cosmos!"**  
-> — **Dan Brown** (paraphrased with a wink)
+> — **Dan Brown**
 
 ---
 
